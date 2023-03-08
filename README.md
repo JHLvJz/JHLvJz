@@ -1,4 +1,4 @@
-### Hi there 👋
+### 회고를 통해 성장하는 문지후입니다 #^_^V#
 
 <div align=center>
   <h4>🔑 TECH_Stack 🔑</h4>
